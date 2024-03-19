@@ -12,8 +12,8 @@
 
 ## Feito por:
 
-### Joana Santos
+### Thais Telles
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/thais-telles/
 
 ```
